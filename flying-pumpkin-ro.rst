@@ -24,7 +24,7 @@ elicopter până când a dispărut de tot după un deal, și i-a venit o idee:
 \- Elicopterul e mai gras decăt un avion și tot poate zbura! îmi trebuie doar o
 elice! Dar unde s-o găsesc, sau cum s-o fac?
 
-Cum a apărut un canoe pe lac, cum a găsit și soluția: trei văsle de canoe, legate
+Cum a apărut un canoe pe lac, cum a găsit și soluția: trei vâsle de canoe, legate
 la centru cu o sfoară fac o elice superbă de elicopter. Zis și făcut, cu elicea
 instalată in capul dovleacului, el încerca pentru prima oară să zboare. A mers!
 S-a ridicat câțiva metri in aer, dar era o mică problemă... elicea se invârtea repede
